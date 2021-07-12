@@ -1,7 +1,6 @@
-- 👋 Hi
---Fun-Fact: I'm Noob
-- 🌱 I’m currently learning Python Pyrogram
-- 💞️ I’m looking to collaborate on ...
+-🌱 I’m currently learning Python Pyrogram
+💬 Ask me about anything, I am happy to help you
+Fun-Fact: I'm Noob
 - 📫 Reach me at https://t.me/Kartikay_bhasin
 
 - About Me-
