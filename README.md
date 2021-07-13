@@ -18,7 +18,7 @@ State- India, Maharashtra
 
 Class- 11th
 
-My Device
+My Device:-
 
 HP Pavilion 15 T a low end laptop 😂
 
