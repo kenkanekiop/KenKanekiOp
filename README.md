@@ -1,20 +1,20 @@
--🌱 I’m currently learning Python Pyrogram
+Hi 👋👋
+Heres About Me -
 
+🌱 I’m currently learning Python Pyrogram
 💬 Ask me about anything, I am happy to help you
-
 Fun-Fact: I'm Noob
+Reach me at  Telegram
 
-- 📫 Reach me at https://t.me/Kartikay_bhasin
-
-- About Me-
+About Me-
 
 State- India, Maharashtra
 
 Class- 11th
 
 My Device
-Hp Pavilion 15 t a low end laptop😂
 
+HP Pavilion 15 T a low end laptop 😂
 
 
 <!---
