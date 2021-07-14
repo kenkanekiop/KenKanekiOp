@@ -1,7 +1,6 @@
 ### Heres About Me-
 
 - - Im Curently Learning python and reading pyrogram docs
--
 + - 🌱 I’m currently learning Python Pyrogram
 + - 💬 Ask me about anything, I am happy to help you
 + - Fun-Fact: I'm Noob
