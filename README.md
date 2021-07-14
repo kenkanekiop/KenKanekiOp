@@ -2,9 +2,12 @@ Hi 👋👋
 
 Heres About Me:-
 
-.🌱 I’m currently learning Python Pyrogram
+.🌱 I’m currently learning Python Pyrogram 
+
 .💬 Ask me about anything, I am happy to help you
+
 .Fun-Fact: I'm Noob
+
 .Reach me at Telegram @Kartikay_bhasin
 
 Pro Tip:-
