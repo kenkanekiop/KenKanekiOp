@@ -1,6 +1,6 @@
 - ### Hi there 👋
 
-<img align='centre' src='https://telegra.ph/file/ba747d7c26faed2a01b92.mp4' width='250"'>
+<img align='centre' src='https://telegra.ph/file/610279f84f69dcfa590aa.jpg' width='250"'>
 
 ### Heres About Me -
 
