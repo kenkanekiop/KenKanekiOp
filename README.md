@@ -1,19 +1,31 @@
-- ### Hi there 👋
-  ### My Self Kenkaneki
+- ### 𝗛𝗜 𝗧𝗛𝗘𝗥𝗘 👋
+  ### 𝗠𝗬 𝗦𝗘𝗟𝗙 𝗞𝗘𝗡𝗞𝗔𝗡𝗘𝗞𝗜
 
 <img align='centre' src='https://telegra.ph/file/610279f84f69dcfa590aa.jpg' width='250"'>
 
-### Heres About Me -
+### 𝗛𝗘𝗥𝗘 𝗔𝗕𝗢𝗨𝗧 𝗠𝗘 -
 
-+  🌱 I’m currently learning Python Pyrogram
-+  💬 Ask me about anything, I am happy to help you
-+  Fun-Fact: I'm Noob
-+  Reach me at [Telegram](https://t.me/BERLINXDDD)
++  🌱 𝗜'𝗠 𝗖𝗨𝗥𝗥𝗘𝗡𝗧𝗟𝗬 𝗟𝗘𝗔𝗥𝗡𝗜𝗡𝗚 𝗣𝗬𝗧𝗛𝗢𝗡 𝗣𝗬𝗥𝗢𝗚𝗥𝗔𝗠
++  💬 𝗔𝗦𝗞 𝗠𝗘 𝗔𝗕𝗢𝗨𝗧 𝗔𝗡𝗬𝗧𝗛𝗜𝗡𝗚, 𝗜 𝗔𝗠 𝗛𝗔𝗣𝗣𝗬 𝗧𝗢 𝗛𝗘𝗟𝗣 𝗬𝗢𝗨
++  𝗙𝗨𝗡 - 𝗙𝗔𝗖𝗧: 𝗜'𝗠 𝗡𝗢𝗢𝗕
++  𝗛𝗢𝗕𝗕𝗬 - 𝗧𝗥𝗔𝗩𝗘𝗟𝗟𝗜𝗡𝗚
++  𝗥𝗘𝗔𝗖𝗛 𝗠𝗘 𝗔𝗧 [Telegram](https://t.me/BERLINXDDD)
+
+#### 🔥𝗠𝗢𝗦𝗧 𝗨𝗦𝗘𝗗 𝗟𝗔𝗡𝗚𝗨𝗔𝗚𝗘🔥
+
+![𝗬𝗢](https://github-readme-stats.vercel.app/api/top-langs/?username=KENKANEKIOP&theme=midnight-purple)
+
+### 𝗠𝗬 𝗦𝗧𝗔𝗧𝗦👅
+![𝗞𝗘𝗡𝗞𝗔𝗡𝗘𝗞𝗜 𝗚𝗜𝗧𝗛𝗨𝗕 𝗦𝗧𝗔𝗧𝗦](https://github-readme-stats.vercel.app/api?username=KENKANEKIOP&show_icons=true&theme=midnight-purple)
+
+<img src='https://github-readme-streak-stats.herokuapp.com/?user=KENKANEKIOP&theme=midnight-purple&show_icon=true' width='500"'></p> <img src='https://komarev.com/ghpvc/?username=KENKANEKIOP&label=My%20Profile%20Views&color=blueviolet&style=plastic' width='175"'></p>
 
 
-### Pro Tip
 
-- If You Copy Someones Works Please Give him/her credits
 
-### My Bro's - [Kartikay Bhasin](https://t.me/KARTIKAY_BHASIN) & [Thomas Shelby](https://t.me/THOM4S_SH3LBY)
+### 𝗣𝗥𝗢 𝗧𝗜𝗣
+
+- 𝗜𝗙 𝗬𝗢𝗨 𝗖𝗢𝗣𝗬 𝗦𝗢𝗠𝗘𝗢𝗡𝗘𝗦 𝗪𝗢𝗥𝗞𝗦 𝗣𝗟𝗘𝗔𝗦𝗘 𝗚𝗜𝗩𝗘 𝗛𝗜𝗠/𝗛𝗘𝗥 𝗖𝗥𝗘𝗗𝗜𝗧𝗦
+
+### 𝗠𝗬 𝗕𝗥𝗢'𝗦 - [𝗞𝗔𝗥𝗧𝗜𝗞𝗔𝗬 𝗕𝗛𝗔𝗦𝗜𝗡](https://t.me/KARTIKAY_BHASIN) & [𝗧𝗛𝗢𝗠𝗔𝗦 𝗦𝗛𝗘𝗟𝗕𝗬](https://t.me/THOM4S_SH3LBY)
  
