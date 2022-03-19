@@ -16,7 +16,7 @@
 ![𝗬𝗢](https://github-readme-stats.vercel.app/api/top-langs/?username=KENKANEKIOP&theme=midnight-purple)
 
 ### 𝗠𝗬 𝗦𝗧𝗔𝗧𝗦👅
-![𝗞𝗘𝗡𝗞𝗔𝗡𝗘𝗞𝗜 𝗚𝗜𝗧𝗛𝗨𝗕 𝗦𝗧𝗔𝗧𝗦](https://github-readme-stats.vercel.app/api?username=KENKANEKIOP&show_icons=true&theme=midnight-purple)
+![𝗞𝗘𝗡𝗞𝗔𝗡𝗘𝗞𝗜 𝗚𝗜𝗧𝗛𝗨𝗕 𝗦𝗧𝗔𝗧𝗦](https://github-readme-stats.vercel.app/api?username=kenkanekiop&show_icons=true&theme=midnight-purple)
 
 <img src='https://github-readme-streak-stats.herokuapp.com/?user=KENKANEKIOP&theme=midnight-purple&show_icon=true' width='500"'></p> <img src='https://komarev.com/ghpvc/?username=KENKANEKIOP&label=My%20Profile%20Views&color=blueviolet&style=plastic' width='175"'></p>
 
