@@ -1,7 +1,7 @@
 - ### 𝗛𝗜 𝗧𝗛𝗘𝗥𝗘 👋
   ### 𝗠𝗬 𝗦𝗘𝗟𝗙 𝗞𝗘𝗡𝗞𝗔𝗡𝗘𝗞𝗜
 
-<img align='centre' src='https://telegra.ph/file/610279f84f69dcfa590aa.jpg' width='250"'>
+<img align='centre' src='https://telegra.ph/file/610279f84f69dcfa590aa.jpg' width='500"'>
 
 ### 𝗛𝗘𝗥𝗘 𝗔𝗕𝗢𝗨𝗧 𝗠𝗘 -
 
