@@ -27,5 +27,5 @@
 
 - 𝗜𝗙 𝗬𝗢𝗨 𝗖𝗢𝗣𝗬 𝗦𝗢𝗠𝗘𝗢𝗡𝗘𝗦 𝗪𝗢𝗥𝗞𝗦 𝗣𝗟𝗘𝗔𝗦𝗘 𝗚𝗜𝗩𝗘 𝗛𝗜𝗠/𝗛𝗘𝗥 𝗖𝗥𝗘𝗗𝗜𝗧𝗦
 
-### 𝗠𝗬 𝗕𝗥𝗢'𝗦 - [𝗞𝗔𝗥𝗧𝗜𝗞𝗔𝗬 𝗕𝗛𝗔𝗦𝗜𝗡](https://t.me/KARTIKAY_BHASIN) & [𝗧𝗛𝗢𝗠𝗔𝗦 𝗦𝗛𝗘𝗟𝗕𝗬](https://t.me/THOM4S_SH3LBY)
+### 𝗠𝗬 𝗕𝗥𝗢'𝗦 - [𝗔𝗠𝗔𝗡 𝗚𝗨𝗝𝗝𝗔𝗥](https://t.me/AMAN_GURJAR_XD) & [𝗧𝗛𝗢𝗠𝗔𝗦 𝗦𝗛𝗘𝗟𝗕𝗬](https://t.me/THOM4S_SH3LBY)
  
